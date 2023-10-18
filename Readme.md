@@ -1,3 +1,1 @@
 kirjutan midagi
-meow
-hahaha
